@@ -1,5 +1,13 @@
 Short notes on books I've read recently.
 
+## [Last Exit to Brooklyn](https://www.goodreads.com/en/book/show/50275.Last_Exit_to_Brooklyn)
+Hubert Selby. One of Selby's own descriptions of his novel refers to it as a story of human suffering.
+
+Perhaps one of the best teleportations into the underbelly of life, an exploration of human vices and a portrayal of life as it really is.
+
+Despite the harshness of certain episodes, their brutality and cruelty, the novel is a surprisingly easy read. It didn't shock me personally, but it did leave a lasting impression. And despite the inherently repulsive context, I find the ending of *The Queen Is Dead* exceptionally poetic.
+
+
 ## [Trainspotting](https://www.goodreads.com/en/book/show/23955.Trainspotting) 
 
 Irvine Welsh. Events of the 1980s in Edinburgh, against the backdrop of the heroin epidemic. First and foremost, I absolutely love Welsh's literary style. And even though I didn't read it in the original, the very structure of the prose and the plot, the unreliable narrator, and the way events are described from the first-person perspectives of different characters from the same group of people — that is really cool.
